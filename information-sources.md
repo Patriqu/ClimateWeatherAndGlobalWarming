@@ -1,1 +1,1 @@
-
+[Information sources about the climate in the polish reliable portal about climate and global warming but links are mostly to the English sites](https://naukaoklimacie.pl/aktualnosci/zrodla-informacji-o-klimacie-12/)
