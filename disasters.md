@@ -6,6 +6,9 @@
 [Natural Catastrophes (Statista)](https://www.statista.com/markets/2445/topic/2448/natural-catastrophes/)  
 
 [Natural Disasters (Our World In Data)](https://ourworldindata.org/natural-disasters)  
+[EM-DAT The International Disaster Database (Centre for Research on the Epidemiology of Disasters (CRED))](https://www.emdat.be/)  
+
+[Weather-related disasters increase over past 50 years, causing more damage but fewer deaths (World Meteorological Organization 31.08.2021](https://public.wmo.int/en/media/press-release/weather-related-disasters-increase-over-past-50-years-causing-more-damage-fewer)  
 
 ## Hurricanes  
 
