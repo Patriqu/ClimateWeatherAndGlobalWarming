@@ -10,3 +10,7 @@
 ## Hurricanes  
 
 [Climate change: Hurricanes to expand into more populated regions (BBC News 31.12.2021)](https://www.bbc.com/news/science-environment-59775105)  
+
+## Rain of animals  
+
+["Deszcz ryb" w Teksasie. "Jakby na ziemie spadały ogromne kule gradu" (RMF PL)](https://www.rmf24.pl/fakty/swiat/news-deszcz-ryb-w-teksasie-jakby-na-ziemie-spadaly-ogromne-kule-g,nId,5743493#crp_state=1)  
