@@ -1,4 +1,5 @@
-[Information sources about the climate in the polish reliable portal about climate and global warming but links are mostly to the English sites](https://naukaoklimacie.pl/aktualnosci/zrodla-informacji-o-klimacie-12/)
+[Information sources about the climate in the polish reliable portal about climate and global warming but links are mostly to the English sites](https://naukaoklimacie.pl/aktualnosci/zrodla-informacji-o-klimacie-12/)  
+[Emisje gazów cieplarnianych – skąd brać dane? (Nauka o klimacie PL)](https://naukaoklimacie.pl/aktualnosci/emisje-gazow-cieplarnianych-skad-brac-dane/)  
 
 [Arctic News Blog](https://arctic-news.blogspot.com/)  
 
