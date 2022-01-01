@@ -3,6 +3,8 @@
 
 [Arctic News Blog](https://arctic-news.blogspot.com/)  
 
+[The Reuters Top 1000 Climate Scientists List](https://www.reuters.com/investigates/special-report/climate-change-scientists-list/)  
+
 ## Forums
 
 [Forum Arctic Sea](https://forum.arctic-sea-ice.net)  
