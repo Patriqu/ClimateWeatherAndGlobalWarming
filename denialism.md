@@ -1,0 +1,1 @@
+[Conservatives Don’t Deny Climate Science Because They’re Ignorant. They Deny It Because of Who They Are. (Mother Jones magazine, 26.06.2014)](https://www.motherjones.com/environment/2014/06/dan-kahan-climate-change-ideology-scientific-illiteracy/)  
