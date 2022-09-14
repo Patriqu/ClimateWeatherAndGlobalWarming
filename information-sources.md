@@ -3,6 +3,8 @@
 
 [The Reuters Top 1000 Climate Scientists List](https://www.reuters.com/investigates/special-report/climate-change-scientists-list/)  
 
+[Climate change: the evidence from space - Satellites provide crucial lines of evidence for climate change - ESA Climate Office](https://climate.esa.int/en/evidence/observations-change/)  
+
 ## Forums
 
 [Forum Arctic Sea](https://forum.arctic-sea-ice.net)  
